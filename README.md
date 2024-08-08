@@ -15,3 +15,10 @@ Meus pronomes são ELE/DELE 👁️👅👁️
 
 
 
+# ESPERO QUE TENHAM AMADO MEU PERFIL BEIJINHOS DE LUXS 😘💫💫
+
+![](https://tenor.com/pt-BR/view/lady-gaga-music-icon-pop-star-gif-26065899.gif)
+
+
+
+
